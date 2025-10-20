@@ -4,10 +4,10 @@ meu nome é tainá michaloski
 
 - estou estudando no alura 
 - estou me desenvolvendo na linguagem javaScript
-- utilizo esses espaço pera minha organização e compartilhamento dos meus prijetos deswenvolvidos 
+- utilizo esses espaço pera minha organização e compartilhamento dos meus prijetos escolares e profissionais 
 
 ### voce entra em contato comigo📫
 
-taina.michaloski.rodrigues@escola.pr.gov.br
+rodriguesmichaloskitaina@gmail.com.br
 
 @nazinha01
