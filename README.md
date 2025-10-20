@@ -2,8 +2,7 @@
 
 meu nome é tainá michaloski 
 
-- estou estudando no alura 
-- estou me desenvolvendo na linguagem javaScript
+- estou me desenvolvendo projetos de computação 
 - utilizo esses espaço pera minha organização e compartilhamento dos meus prijetos escolares e profissionais 
 
 ### voce entra em contato comigo📫
