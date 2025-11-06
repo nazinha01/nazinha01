@@ -3,7 +3,7 @@
 meu nome é tainá michaloski 
 
 - estou me desenvolvendo projetos de computação 
-- utilizo esses espaço pera minha organização e compartilhamento dos meus prijetos escolares e profissionais 
+- utilizo esses espaço pera minha organização e compartilhamento dos meus trabalhos escolares e profissionais 
 
 ### voce entra em contato comigo📫
 
