@@ -8,6 +8,6 @@ meu nome é tainá michaloski
 ### voce entra em contato comigo📫
 
 rodriguesmichaloskitaina@gmail.com.br
-cll:(42)998398853
+  cll:(42)998398853
 
 @nazinha01
